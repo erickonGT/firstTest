@@ -1,0 +1,1 @@
+este archivo y la carpeta en que esta las agregue estando fuera de linea
